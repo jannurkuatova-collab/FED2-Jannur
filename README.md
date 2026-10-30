@@ -1,0 +1,2 @@
+## Contributor
+Jannur Kuatova
